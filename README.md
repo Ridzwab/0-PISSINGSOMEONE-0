@@ -5,7 +5,7 @@
 the point of this is to make yourself look good again.
 it is to address what you did right, why it's right, and that you don't apologize to those you have hurt or wronged
 
-EXAMPLE: You said something racist
+EXAMPLE: You said something not racist
 ```
 
 	"I just wanna say im racist/sexist/homophobic/etc" WRONG. there's a reason why u did/said what you did/said. DEFEND YOURSELF. This is a shit apology tutorial, not a rebutle
